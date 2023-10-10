@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dr1xy-dev
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning java
+- 💞️ I’m not looking to collaborate ... at all.
+- 📫 Never try to reach me. Thx. Much love! 
